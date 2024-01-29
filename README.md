@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DJGoossens
 - 👀 I’m interested in atomistic modelling and writing and editing
-- 🌱 I’m currently learning writing and editing
+- 🌱 I’m currently learning writing and editing (never stop learning!)
 - 💞️ I’m looking to collaborate on ... I dunno right now
 - 📫 How to reach me ... I'll think of something
 
